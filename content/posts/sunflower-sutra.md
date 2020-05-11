@@ -42,6 +42,6 @@ all that dress of dust, that veil of darkened railroad skin, that smog of cheek,
 
 and those blear thoughts of death and dusty loveless eyes and ends and withered roots below, in the home-pile of sand and sawdust, rubber dollar bills, skin of machinery, the guts and innards of the weeping coughing car, the empty lonely tincans with their rusty tongues alack, what more could I name, the smoked ashes of some cock cigar, the cunts of wheelbarrows and the milky breasts of cars, wornout asses out of chairs & sphincters of dynamos–all these
 
-entangled in your mummied roots–and you standing before me in the sunset, all your glory in your form!
+entangled in your mummied roots–and you standing before me in the sunset, all your glory in your form!!!
 
 A perfect beauty of a sunflower! a perfect excellent lovely sunflower existence! a sweet natural eye to the new hip moon, woke up alive and excited grasping in the sunset shadow sunrise golden monthly breeze!
